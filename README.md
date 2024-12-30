@@ -1,3 +1,3 @@
 # Hello, World! I'm Gary Duncan 👋
 
-## Full Stack Developer | Army Veteran | React Enthusiast
+## Man of God | Full Stack Engineer @ Better Collective | Army Veteran
